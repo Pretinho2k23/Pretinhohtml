@@ -1,1 +1,2 @@
-# Pretinhohtml
+meu nome é arthur,sou estudante do 1 ano do ensino médio do colégio joão oliveira franco.Ese é meu primeiro contato com esta plataforma de estudo;apesar de eu achar muito chato essa porcaria de plataforma tenho que fazer esse lixo para conseguir nota nessa porcaria de colegio
+sou muito estressado em relação aos estudos,só de pensar em ir pro colégio ja me consome uma raiva imensurável.# Pretinhohtml
